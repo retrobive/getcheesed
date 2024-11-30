@@ -1,12 +1,12 @@
 
 **<p align="center">
-	text txt text
+	❝ I've never seen someone as beautiful as my second employer. ❞
 	</p>**
 
  <p align="center">
- deco thing
+ links
  </p>
 
  <p align="center">
- textttt
+ deco thing
  </p>
