@@ -8,7 +8,7 @@ deco thing
   $\color{#483248}{❝ ~ I've ~ never ~ seen ~ someone ~ as ~ beautiful ~ as ~ my ~ second ~ employer. ~ ❞}$
 
  <p align="center">
- links
+ read my prns.cc if you want more info about me..
  </p>
 
  <p align="center">
