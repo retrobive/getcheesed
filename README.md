@@ -10,7 +10,7 @@
  all art HERE is by digitalskaper on twtt
 </p>
 <p align="center">
- i love carolina mach, bive and stat from the hit roblox game regretevator! ialso love katana, banhammer and skateboard from another hit game called phighting
+ please keep in mind that i am 14 years old and that dni goes both ways. i dont care about your age as long as you arent way younger than me, just please iwc if youre over 18
  <p align="center">
  ⌞‎ ‎ ‎ °‎ ‎ ‎ •‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ •‎ ‎ ‎ °‎ ‎ ‎ ⌟
  </p>
